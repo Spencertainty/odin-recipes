@@ -3,3 +3,5 @@
 1. taking the Odin approach
 2. slowing down and soaking it in = **sponge**
 3. becoming great at *what you want to do*
+
+### shout-outs to mentors - hashtag# mentors rule!
